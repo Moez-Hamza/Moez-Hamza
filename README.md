@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Moez-Hamza
-- 👀 I’m interested in Music and architecture
+- 👀 I’m interested in Music and travelling 
 - 🌱 I’m currently learning Web development 
 - 💞️ I’m looking to collaborate on every new experience
 - 📫 How to reach me hamza.moez@gmail.com
